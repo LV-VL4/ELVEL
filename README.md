@@ -10,8 +10,12 @@ i kin gojo!!(i dont kin him that much!)
 
 im an ENTP! 
 
-sanemi & gojo lover REAL. 
+sanemi & gojo/choso lover REAL. 
 
-i like being with ny friends!! 
+i like being with ny friends!!, im comfortable with my friends alot
 
-I love my wife @Imissmywife
+im from southeast asia!!!(Indonesia) 
+
+im free to int!, please whisp me if you want to int!, if im afk
+/offtab i might not see your chat!! 
+
